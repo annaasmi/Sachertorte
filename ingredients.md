@@ -1,0 +1,7 @@
+4 1/2 ounces high-quality bittersweet chocolate, finely chopped
+9 tablespoons (1 stick plus 1 tablespoon) unsalted butter, at cool room temperature
+1 cup confectioners' sugar
+6 large eggs, separated, at room temperature
+1 teaspoon vanilla extract
+1/2 cup granulated sugar
+1 cup all-purpose flour (spoon gently into cup and level top)
